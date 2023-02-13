@@ -37,7 +37,6 @@ what is chat gpt
 chatgpt api
 chat gpt app android
 best chat gpt app
-
 chatgpt desktop app
 what is chat gpt
 chat gpt app android
